@@ -226,6 +226,15 @@ https://www.rainforestqa.com/whitehat/
 
 https://1broker.com
 
+https://www.giftrocket.com/
+
+https://minergate.com/
+
+https://explore.researchgate.net/display/support/Security+and+vulnerability
+
+https://security.dji.com/
+
+
 
 
 
